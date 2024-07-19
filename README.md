@@ -12,7 +12,7 @@
 </p>
 
 <h5 align="center">
- before you interact /info pt stuff
+ wip
 </h5>
 
 
@@ -22,7 +22,7 @@
 <p align="center">
 <img src="https://files.catbox.moe/8gkgpj.jpg"/>
  <h5 align="center">
- dni stuff
+ wip
 </h5>
 </p>
    
