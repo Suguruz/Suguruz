@@ -12,16 +12,26 @@
 </p>
 
 <h5 align="center">
-‎ ‎‎ ‎ ‎ wip
+ before you interact /info pt stuff
 </h5>
 
-***
+
 <h5 align="center">
-‎ ‎‎ ‎ ‎ wip
+ ‎‎ ‎
 </h5>
 <p align="center">
 <img src="https://files.catbox.moe/8gkgpj.jpg"/>
+ <h5 align="center">
+ dni stuff
+</h5>
 </p>
+   
 <p align="center">
 <img src="https://files.catbox.moe/zkqonr.png"/>
+  <h5 align="center">
+ graphic credits to deertism and idolsouls on tumblr 
+</h5>
+<img src="https://files.catbox.moe/csosve.png"
 </p>
+
+
