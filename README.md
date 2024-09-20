@@ -12,7 +12,7 @@
 </p>
 
 <h5 align="center">
- wip
+ Moya >_< she/her pref. he is okay SOMETIMES. 15 and American 0_0
 </h5>
 
 
@@ -22,7 +22,7 @@
 <p align="center">
 <img src="https://files.catbox.moe/8gkgpj.jpg"/>
  <h5 align="center">
- wip
+ Just read the shit i have linked thats kinda it
 </h5>
 </p>
    
