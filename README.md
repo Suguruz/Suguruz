@@ -12,7 +12,9 @@
 </p>
 
 <h5 align="center">
- Moya >_< she/her pref. he is okay SOMETIMES. 15 and American 0_0
+ Moya >_< 
+         <h5 align="center">
+        She/her, he SOMETIMES. American, 15. Bi+aroace demigirl
 </h5>
 
 
