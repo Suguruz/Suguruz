@@ -3,7 +3,7 @@
 
 <p align="center">
 <img src="https://files.catbox.moe/d2iu38.png"/>
-<img src="https://files.catbox.moe/oqyc5h.png"
+<img src="https://files.catbox.moe/h1f303.gif"
 </p>
 
 <p align="center">
@@ -27,9 +27,8 @@
 </p>
    
 <p align="center">
-<img src="https://files.catbox.moe/zkqonr.png"/>
+<img src="https://files.catbox.moe/ldi63j.gif"/>
   <h5 align="center">
- graphic credits to deertism and idolsouls on tumblr 
 </h5>
 <img src="https://files.catbox.moe/csosve.png"
 </p>
