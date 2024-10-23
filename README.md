@@ -14,7 +14,7 @@
 <h5 align="center">
  Moya >_< 
          <h5 align="center">
-        She/her, he SOMETIMES. American, 15. Bi+aroace demigirl
+        She/her<3, he/him. American, 15. Bi+aroace demigirl
 </h5>
 
 
