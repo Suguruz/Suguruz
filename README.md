@@ -1,20 +1,18 @@
 <h3 align="center">
-<img src="https://files.catbox.moe/gktui6.png"
 
 <p align="center">
 <img src="https://files.catbox.moe/d2iu38.png"/>
-<img src="https://files.catbox.moe/h1f303.gif"
+<img src="https://files.catbox.moe/508po1.png"
 </p>
 
 <p align="center">
 </p>
-<p align="center">
-</p>
+
 
 <h5 align="center">
  Moya >_< 
          <h5 align="center">
-        She/her<3, he/him. American, 15. Bi+aroace demigirl
+        she/her      15 (nov 29th)      american
 </h5>
 
 
@@ -22,7 +20,6 @@
  ‎‎ ‎
 
 </h5>
-<img src="https://files.catbox.moe/csosve.png"
 </p>
 
 
