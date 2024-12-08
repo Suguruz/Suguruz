@@ -12,7 +12,7 @@
 <h5 align="center">
  Moya >_< 
          <h5 align="center">
-        she/her      15 (nov 29th)      american
+        dni yutamaki and satosugu antis ❌❌❌
 </h5>
 
 
