@@ -12,6 +12,10 @@
  Moya >_< 
          <h5 align="center">
         dni yutamaki and satosugu antis ❌❌❌ and iwc sukugo fans
+          <h5 align="center">
+          I'm 16, she/it . just read the stuff I have linked.
+           <h5 align="center">
+           C+H and int is ofc alr!!! I'm just really shy at first!! shoot me a whisper if I don't seem to be responding.
 </h5>
 
 
