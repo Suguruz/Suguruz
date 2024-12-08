@@ -16,6 +16,8 @@
           I'm 16, she/it . just read the stuff I have linked.
            <h5 align="center">
            C+H and int is ofc alr!!! I'm just really shy at first!! shoot me a whisper if I don't seem to be responding.
+             <h5 align="center">
+              Do not copy OR take inspo from my ponies for any reason UNLESS you ask and I say YES.
 </h5>
 
 
