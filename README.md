@@ -11,7 +11,7 @@
 <h5 align="center">
  Moya >_< 
          <h5 align="center">
-        dni yutamaki and satosugu antis ❌❌❌ and iwc sukugo fans
+        dni yutamaki and satosugu antis ❌❌❌ and iwc/thin ice sukugo fans
           <h5 align="center">
           I'm 16, she/it . just read the stuff I have linked.
            <h5 align="center">
