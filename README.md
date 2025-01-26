@@ -1,7 +1,7 @@
 <h3 align="center">
 
 <p align="center">
-<img src=https://i.pinimg.com/736x/ae/69/74/ae6974cbd310e822b3a5d2d07ad05c4c.jpg
+<img src=https://i.pinimg.com/736x/12/27/45/1227454c78d6babb4a5ba3fcd5d10164.jpg
 </p>
 
 <p align="center">
@@ -9,15 +9,15 @@
 
 
 <h5 align="center">
- Moya >_< 
+ જ⁀➴ Moya  .ᐟ ﹒﹒﹒
          <h5 align="center">
-        dni yutamaki and satosugu antis ❌❌❌ and iwc/thin ice sukugo fans
+        ꩜　　dni satosugu + yutamaki antis 　thin ice sukugo fans
           <h5 align="center">
-          I'm 16, she/it . just read the stuff I have linked.
+          ♡⸝⸝ I am 16 and use she╱it ﹒﹒﹒American , EST
            <h5 align="center">
-           C+H and int is ofc alr!!! I'm just really shy at first!! shoot me a whisper if I don't seem to be responding.
+           ᓚ₍ ^. .^₎ c+h / int is okay ! Whisper if I don't respond !
              <h5 align="center">
-              Do not copy OR take inspo from my ponies for any reason UNLESS you ask and I say YES. Do NOT take screenshots of me AT ALL for ANY reason
+              ᝰ.ᐟ Please do not take inspo OR copy my ponies ! This includes if we are friends , ask me first
 </h5>
 
 
