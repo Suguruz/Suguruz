@@ -18,6 +18,8 @@
            ᓚ₍ ^. .^₎ c+h / int is okay ! Whisper if I don't respond !
              <h5 align="center">
               ᝰ.ᐟ Please do not take inspo OR copy my ponies ! This includes if we are friends , ask me first
+             <h5 align="center">
+              go ahead and avoid interacting with me if you have "vampz" in your user , i will not take you seriously im sorry 💔
 </h5>
 
 
