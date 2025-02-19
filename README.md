@@ -13,7 +13,7 @@
          <h5 align="center">
         ꩜　　>_<
           <h5 align="center">
-          ♡⸝⸝ I am 16 and use she╱it ﹒﹒﹒American , EST
+          ♡⸝⸝ I am 16 and use she╱her ﹒﹒﹒American , EST
            <h5 align="center">
            ᓚ₍ ^. .^₎ c+h / int is okay ! Whisper if I don't respond !
              <h5 align="center">
