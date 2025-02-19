@@ -11,7 +11,7 @@
 <h5 align="center">
  જ⁀➴ Moya  .ᐟ ﹒﹒﹒
          <h5 align="center">
-        ꩜　　dni satosugu + yutamaki antis 　thin ice sukugo fans
+        ꩜　　if you've got a problem with me literally just say it
           <h5 align="center">
           ♡⸝⸝ I am 16 and use she╱it ﹒﹒﹒American , EST
            <h5 align="center">
