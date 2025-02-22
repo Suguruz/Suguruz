@@ -10,8 +10,6 @@
 
 <h5 align="center">
  જ⁀➴ Moya  .ᐟ ﹒﹒﹒
-         <h5 align="center">
-        ꩜　　>_<
           <h5 align="center">
           ♡⸝⸝ I am 16 and use she╱her ﹒﹒﹒American , EST
            <h5 align="center">
@@ -20,6 +18,8 @@
               ᝰ.ᐟ Please do not take inspo OR copy my ponies ! This includes if we are friends , ask me first
              <h5 align="center">
               go ahead and avoid interacting with me if you have "vampz" in your user , i will not take you seriously im sorry 💔
+               <h5 align="center">
+        ꩜　usually on with my bf!!
 </h5>
 
 
