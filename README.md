@@ -18,6 +18,8 @@
               ᝰ.ᐟ Please do not take inspo OR copy my ponies ! This includes if we are friends , ask me first!!
                <h5 align="center">
         ꩜　usually on with my bf!!
+                 <h5 align="center">
+        ppl who engage in ANYTHING cannibalism at ALL (user, tolerance/admiration, interest, etc) do NOT interact with me
 </h5>
 
 
