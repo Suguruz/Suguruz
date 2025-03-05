@@ -20,7 +20,8 @@
         ꩜　usually on with my bf!!
                  <h5 align="center">
         ppl who engage in ANYTHING cannibalism at ALL (user, tolerance/admiration, interest, etc) do NOT interact with me
-</h5>
+                  <h5 align="center">
+        also those proshippers in the jjk area PLEASE hang yourself!!! The world would be better without you in it!!
 
 
 <h5 align="center">
