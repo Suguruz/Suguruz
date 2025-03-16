@@ -11,15 +11,7 @@
 <h5 align="center">
  જ⁀➴ Moya  .ᐟ ﹒﹒﹒
           <h5 align="center">
-          ♡⸝⸝ 16yo 　　she/her 　　infj　　american 　est　　nov29
-           <h5 align="center">
-           ᓚ₍ ^. .^₎ c+h / int is okay ! Whisper if I don't respond !
-             <h5 align="center">
-              ᝰ.ᐟ Please do not take inspo OR copy my ponies ! This includes if we are friends , ask me first!!
-               <h5 align="center">
-        ꩜　usually on with my bf / friends ! 
-                  <h5 align="center">
-        also those proshippers in the jjk area PLEASE hang yourself!!! The world would be better without you in it!!
+          so many fans recently!!
 
 
 <h5 align="center">
