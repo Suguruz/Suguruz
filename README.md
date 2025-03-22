@@ -11,7 +11,7 @@
 <h5 align="center">
  જ⁀➴ Moya  .ᐟ ﹒﹒﹒
           <h5 align="center">
-          so many fans recently!!
+          [strawpage](https://suguruz.straw.page/)　　[prns.cc](https://pronouns.cc/@Suguru)　　[ata.book](https://sugurugeto.atabook.org/)
 
 
 <h5 align="center">
