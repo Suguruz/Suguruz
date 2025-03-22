@@ -11,7 +11,7 @@
 <h5 align="center">
  જ⁀➴ Moya  .ᐟ ﹒﹒﹒
           <h5 align="center">
-          [strawpage](https://suguruz.straw.page/)　　[prns.cc](https://pronouns.cc/@Suguru)　　[ata.book](https://sugurugeto.atabook.org/)
+          meow
 
 
 <h5 align="center">
