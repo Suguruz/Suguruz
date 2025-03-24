@@ -11,7 +11,7 @@
 <h5 align="center">
  જ⁀➴ Moya  .ᐟ ﹒﹒﹒
           <h5 align="center">
-          meow
+          proshippers / their friends in the jjk area, please jump !
 
 
 <h5 align="center">
