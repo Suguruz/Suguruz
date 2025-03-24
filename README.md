@@ -12,7 +12,8 @@
  જ⁀➴ Moya  .ᐟ ﹒﹒﹒
           <h5 align="center">
           proshippers / their friends in the jjk area, please jump !
-
+          <h5 align="center">
+          https://rentry.co/ponypdfiles < - made by my bf, pls read!!
 
 <h5 align="center">
  ‎‎ ‎
