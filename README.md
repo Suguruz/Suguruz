@@ -11,7 +11,7 @@
 <h5 align="center">
  જ⁀➴ Moya  .ᐟ ﹒﹒﹒
           <h5 align="center">
-          proshippers / their friends in the jjk area, please jump !
+          please read this doc below ^_^
           <h5 align="center">
           https://docs.google.com/document/d/1A7S-1ieeVfLfZyTbz4BawMauhJ6zomAtBxc6zqCSjTE/edit?usp=sharing
 
