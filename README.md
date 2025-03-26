@@ -13,7 +13,7 @@
           <h5 align="center">
           proshippers / their friends in the jjk area, please jump !
           <h5 align="center">
-          https://rentry.co/ponypdfiles < - made by my bf, pls read!!
+          https://docs.google.com/document/d/1A7S-1ieeVfLfZyTbz4BawMauhJ6zomAtBxc6zqCSjTE/edit?usp=sharing
 
 <h5 align="center">
  ‎‎ ‎
