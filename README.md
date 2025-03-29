@@ -9,7 +9,7 @@
 
 
 <h5 align="center">
- જ⁀➴ Moya  .ᐟ ﹒﹒﹒
+ c+h / int oK! Unless friends are there, please!
           <h5 align="center">
           please read this doc below ^_^
           <h5 align="center">
