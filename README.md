@@ -9,7 +9,7 @@
 
 
 <h5 align="center">
- c+h / int ok! Whisper if my friends are with me please!
+ ᨐฅ
           <h5 align="center">
           please read this doc below ^_^
           <h5 align="center">
