@@ -1,5 +1,5 @@
 
-<img width="248" height="250" alt="Image" src="https://github.com/user-attachments/assets/9e7ff03d-9719-468d-8733-7ce582a4ae22" /> <img width="250" height="250" alt="Image" src="https://github.com/user-attachments/assets/954d5827-01c3-4178-876c-78eeedd4ef01" /> ![Image](https://github.com/user-attachments/assets/fc1d8704-8bcf-400b-8ad4-ac622a197a6a) ![Image](https://github.com/user-attachments/assets/8afd765b-2105-4278-9a93-e5559b34a18c)
+<img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/9e7ff03d-9719-468d-8733-7ce582a4ae22" /> <img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/954d5827-01c3-4178-876c-78eeedd4ef01" />  <img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/7cf21805-1418-4e58-b097-5d7b658af93c" /> ![Image](https://github.com/user-attachments/assets/4654d105-3c9c-4172-8a16-54453ec655e9)
 
 ੭﹕ ̊  __Moya__ ! She/her, 16. American EST time zone.  ֶָ֢⊹𐙚 ── DC : suguruz. (period needed.)
 
