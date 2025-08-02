@@ -16,7 +16,7 @@ I can get pretty quiet sometimes, as I am on the phone a lot when I'm playing, o
 
 ✮
 
-Basic dni, obviously, that includes proshippers because somehow people forget that's a part of the basic dni? lmao. If you whitewash Shidou (AKA, 95% of Shidou's on Ponytown.) ── more on entry. 
+Basic dni, obviously, that includes proshippers because somehow people forget that's a part of the basic dni? lmao. If you whitewash Shidou (AKA, 95% of Shidou's on Ponytown.) ── more on rentry. 
 
 ✮
 
