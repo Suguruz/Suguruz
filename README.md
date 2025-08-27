@@ -10,7 +10,7 @@ My main interests as of right now are Enstars, Blue Lock, Jujutsu Kaisen & more.
 
 I mainly cosplay my favorite characters on Pony Town! Please, do not copy or screenshot my ponies. ASK before you take inspo, if I say no, that means no. I am often matching with my boyfriend when he is on with me!!
 
-C+H is alright! But if I am with friends & I don't know you, please wait until I am alone! ── Whispers prefered, I am more likely to see it! I do not approach groups, even if a green name is there 90% of the time. Keep in mind I am pretty shy and will not interat first with strangers.
+C+H is alright! But if I am with friends & I don't know you, please wait until I am alone! ── Whispers prefered, I am more likely to see it! I do not approach groups, even if a green name is there 90% of the time. Keep in mind I am pretty shy and will not interact first with strangers.
 
 ✮
 
