@@ -12,6 +12,8 @@ I mainly cosplay my favorite characters on Pony Town! Please, do not copy or scr
 
 C+H is alright! But if I am with friends & I don't know you, please wait until I am alone! ── Whispers prefered, I am more likely to see it! I do not approach groups, even if a green name is there 90% of the time. Keep in mind I am pretty shy and will not interact first with strangers.
 
+if I unfriend you its because we either don't ever speak or you're friends with proshippers. or i just don't like you
+
 ✮
 
 Basic dni, obviously, that includes proshippers because somehow people forget that's a part of the basic dni? lmao. If you whitewash Shidou (AKA, 95% of Shidou's on Ponytown.) ── more on rentry. 
