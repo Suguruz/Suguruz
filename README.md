@@ -1,7 +1,8 @@
 <p align="center">
   <img width="500" height="500" alt="Image" src="https://files.catbox.moe/urdwi7.png" />
 </p>
-
+<p align="center">
+Koga theme rn heh
 <p align="center">
 https://rinnitoshi.straw.page/ <-- Ponytown rentry 🎕
 <p align="center">
