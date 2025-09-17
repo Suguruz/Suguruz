@@ -4,7 +4,7 @@
 <p align="center">
 Koga theme rn heh
 <p align="center">
-https://rinnitoshi.straw.page/ <-- Ponytown rentry 🎕
+https://rinnitoshi.straw.page/ <-- Ponytown info 🎕
 <p align="center">
 ✮
 <p align="center">
