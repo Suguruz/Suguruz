@@ -3,9 +3,9 @@
 
 </p>
 <p align="center">
-Koga theme rn heh
+REVAMP SOON
 <p align="center">
-  I don't care what label you use for it. If you are a darkshipper/proshipper/whatever else they call that stuff, do not interact with me. I am NOT your safe space if you support that stuff, fictional or not.
+  
 <p align="center">
   If I don't reply to your whisper, IM SORRY leave a message on my ata 
 <p align="center">
