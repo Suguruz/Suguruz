@@ -9,7 +9,7 @@ Koga theme rn heh
 <p align="center">
   If I don't reply to your whisper, IM SORRY leave a message on my ata 
 <p align="center">
-https://rinnitoshi.straw.page/ <-- Ponytown info 🎕
+https://siimeon.straw.page/ <-- Ponytown info 🎕
 <p align="center">
 ✮
 <p align="center">
