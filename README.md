@@ -9,7 +9,7 @@ REVAMP SOON
 <p align="center">
   If I don't reply to your whisper, IM SORRY leave a message on my ata 
 <p align="center">
-https://siimeon.straw.page/ <-- Ponytown info 🎕
+
 <p align="center">
 ✮
 <p align="center">
