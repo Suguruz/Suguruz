@@ -6,7 +6,7 @@
 <p align="center">
 ✮
 <p align="center">
-  Please whisper to interact. I am likely not paying attention unless I'm actively engaging in public chat.
+  Please whisper to interact. I am likely not paying attention unless I'm actively engaging in public chat. Please do not copy or take lots of inspo from my ponies or style, including if we are friends unless outwardly stated.
 <p align="center">
   I'm an anxious person in general, so I apologize if I seem uninterested! I'm likely just nervous is all. Please reframe from c+h when I am with friends, but feel free to whisper me! This does not apply if we are already friends, just sit with me if you find me ^_^ Please be aware that if I find you odd or am put off by you, I'm going to stop interacting. I won't be rude or anything but I will try to make it clear that I am not interested in being buddy buddy with you. Do not invovle me in drama with ppl just bc I know someone who is invovled. You're free to inform me, as that is important a lot of the times, but I will form my own opinion on the matter and move on.
 <p align="center">
