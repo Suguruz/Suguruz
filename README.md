@@ -6,7 +6,7 @@
 <p align="center">
 ✮
 <p align="center">
-  Do not copy my ponies please! Light inspo is fine if you ask, just don't overdo it please! Friends, please ask beforehand!
+  Do not copy my ponies please! Light inspo is fine if you ask, just don't overdo it please! Copying/Colorpicking i do not want. Friends, please ask beforehand!
 <p align="center">
   I'm an anxious person in general, so I apologize if I seem uninterested! I'm likely just nervous is all. For the most part, please whisper me to interact. Its a lot easier for me to keep track of as a lot of the times I am afk or talking with a friend. C+H is okay!! I don't approach first unless I know you, sorry!
 <p align="center">
