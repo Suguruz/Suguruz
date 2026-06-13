@@ -12,7 +12,7 @@
 <p align="center">
 Once I warm up to you I am a lot more talkative so just give me time! Honestly just read my byi & dni in my links. 
 <p align="center">
-Proshippers and their varients do not interact with me. I don't care for your reasoning or how you attempt to explain it. I know what it is and I do not want to interact with you if you are a proshipper or are proship neutral. 
+Proshippers/darkshippers and their varients do not interact with me. I don't care for your reasoning or how you attempt to explain it. I know what it is and I do not want to interact with you if you are a proshipper or are proship neutral. 
 <p align="center">
   If I unadd you its probably because I forgot to add a friendnote and don't remember who you were
   <p align="center">
