@@ -4,7 +4,7 @@
 
 </p>
 <p align="center">
-✮
+✮ I would suggest reading my rentry for a better idea of who I am
 <p align="center">
   Do not copy my ponies please! Light inspo is fine if you ask, just don't overdo it please! Copying/Colorpicking i do not want. Friends, please ask beforehand!
 <p align="center">
