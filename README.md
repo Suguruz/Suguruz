@@ -8,7 +8,7 @@
 <p align="center">
   Do not copy my ponies please! Light inspo is fine if you ask, just don't overdo it please! Copying/Colorpicking i do not want. Friends, please ask beforehand!
 <p align="center">
-  For the most part, please whisper me to interact. Its a lot easier for me to keep track of as a lot of the times I am afk or talking with a friend. C+H is okay!! I don't approach first unless I know you, sorry! In rare moments I do just know I was terrified LMAO
+  For the most part, please whisper me to interact. Its a lot easier for me to keep track of as a lot of the times I am afk or talking with a friend. C+H is okay!! I don't approach first unless I know you, sorry! I'm just VERY shy! In rare moments I do just know I was terrified LMAO
 <p align="center">
 Once I warm up to you I am a lot more talkative so just give me time! Honestly just read my byi & dni in my links. I'll make this look nice at some point
 <p align="center">
