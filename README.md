@@ -5,6 +5,7 @@
 </p>
 <p align="center">
 ✮ I would suggest reading my rentry for a better idea of who I am
+  important note I mention several times: I am VERYYY shy. I might not always engage around people I don't know. Newer friends, I just need a little more time warming up!!
 <p align="center">
   Do not copy my ponies please! Light inspo is fine if you ask, just don't overdo it please! Copying/Colorpicking i do not want. Friends, please ask beforehand!
 <p align="center">
