@@ -1,20 +1,27 @@
 <p align="center">
   
-<img width="500" height="670" alt="rmkreadmee" src="https://cdn.discordapp.com/attachments/992967074915819581/1516099553005273298/7HnAAAAABJRU5ErkJggg.png?ex=6a31693d&is=6a3017bd&hm=a2049d10ffa6d1a91e51105793c1fc1abcf45f31787679e2153d4f3ca534dff6" />
+<img width="500" height="500" alt="rmkreadmee" src="https://files.catbox.moe/aic1jx.png" />
 
 </p>
-<p align="center">
-✮ I would suggest reading my rentry for a better idea of who I am. --
-  important note I mention several times: I am VERYYY shy. I might not always engage around people I don't know. Newer friends, I just need a little more time warming up!!
-<p align="center">
-  Do not copy my ponies please! Light inspo is fine if you ask, just don't overdo it please! Copying/Colorpicking i do not want. Friends, please ask beforehand!
-<p align="center">
-  For the most part, please whisper me to interact. Its a lot easier for me to keep track of as a lot of the times I am afk or talking with a friend. C+H is okay!! I don't approach first unless I know you, sorry! I'm just VERY shy! In rare moments I do just know I was terrified LMAO
-<p align="center">
-Once I warm up to you I am a lot more talkative so just give me time! Honestly just read my byi & dni in my links. I'll make this look nice at some point
-<p align="center">
-Proshippers/darkshippers and their varients do not interact with me. I don't care for your reasoning or how you attempt to explain it. I know what it is and I do not want to interact with you if you are a proshipper or are proship neutral. 
-<p align="center">
-  If I unadd you its probably because I forgot to add a friendnote and don't remember who you were
-  <p align="center">
-https://docs.google.com/document/d/1A7S-1ieeVfLfZyTbz4BawMauhJ6zomAtBxc6zqCSjTE/edit?usp=sharing
+
+  <img align="left" img width="300" height="300" alt="rmkreadmee" src="https://files.catbox.moe/05rcro.png" />  Ｐｏｎｙ ｔｏｗｎ ｉｎｆｏ ・・・・・
+  
+  𓏼 ̣̣✚ Please DO NOT copy, colorpick, or screenshot my ponies. 
+  
+  ◟ C+H friendly!! Don't be scared to interact with me ⚞^. .^⚟ I prefer talking in whispers, especially if you're trying to get my attention. 
+
+ ִִ𓈒𓈒 New ppl/friends make me a bit nervious, so it might take me a while before I'm comfortablr enough to come up to you on my own. However you are free to come up and talk anytime ! 
+
+ You can usually spot me in a cosplay pony. I rarely use anything else. Feel free to say hello if you recognize me !
+
+ Please don't try to drag me into your drama, it happens more than you would think. 
+
+ Ａｂｏｕｔ ｍｅ ・・・・・ 
+
+ You can just call me Moya. Please only use she/her pronouns for me, no they/them. 
+
+ I am 17 (11/29) Ი𐑼   infj 4w5 ꒰𓈒 𓏼 ׁ  american, est time. Also I love Simeon & Solomon from Obey Me (˵◝ ⩊ ◜˵マ
+
+ I'm a really shy person, so I rarely interact first with new people. Just bare with me here. 
+
+ Please read my rentry for more info about me! It includes my interests, dni, & byi.
