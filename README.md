@@ -24,4 +24,6 @@
 
  I'm a really shy person, so I rarely interact first with new people. Just bare with me here. 
 
+ I often have a hard time properly expressing how I feel about stuff. Putting my thoughts + feelings into words is very hard for me, so I apologize for any trouble it may cause. 
+
  Please read my rentry for more info about me! It includes my interests, dni, & byi.
