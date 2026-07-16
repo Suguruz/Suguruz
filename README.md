@@ -10,7 +10,7 @@
   
   ◟ C+H friendly!! Don't be scared to interact with me ⚞^. .^⚟ I prefer talking in whispers, especially if you're trying to get my attention. 
 
- ִִ𓈒𓈒 New ppl/friends make me a bit nervious, so it might take me a while before I'm comfortablr enough to come up to you on my own. However you are free to come up and talk anytime ! 
+ ִִ𓈒𓈒 New ppl/friends make me a bit nervious, so it might take me a while before I'm comfortable enough to come up to you on my own. However you are free to come up and talk anytime ! Please note I likely won't approach new people on my own, sorry! Σ(ﾟ口ﾟ;)//
 
  You can usually spot me in a cosplay pony. I rarely use anything else. Feel free to say hello if you recognize me !
 
