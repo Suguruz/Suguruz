@@ -26,4 +26,17 @@
 
  I often have a hard time properly expressing how I feel about stuff. Putting my thoughts + feelings into words is very hard for me, so I apologize for any trouble it may cause. 
 
- Please read my rentry for more info about me! It includes my interests, dni, & byi.
+ 
+<img align="left" img width="300" height="300" alt="rmkreadmee" src="https://files.catbox.moe/1rckw0.png" /> Ｉｎｔｅｒａｃｔ ・・・・・
+
+If you have similar interests as me pleaseee interact ^_^ (see my rentry for list)
+
+I'm really hyperfixated on Obey Me so plsss pls talk to me if you like that game too heh . can you guess my top 2 favorite characters. 
+
+I prefer to interact with people who are in my age range (16-19) anyone younger I likely won't become your friend, sorry. 
+
+Anyway, I don't really care how you int. C+h, whispering or anything is fine with me. Please don't be scared!! 
+
+/ᐠ - ˕ -マ Ⳋ
+
+<img src="https://files.catbox.moe/1vfnsz.jpg" />
