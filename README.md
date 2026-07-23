@@ -10,11 +10,11 @@
   
   ◟ C+H friendly!! Don't be scared to interact with me ⚞^. .^⚟ I prefer talking in whispers, especially if you're trying to get my attention. 
 
- ִִ𓈒𓈒 New ppl/friends make me a bit nervious, so it might take me a while before I'm comfortable enough to come up to you on my own. However you are free to come up and talk anytime ! Please note I likely won't approach new people on my own, sorry! Σ(ﾟ口ﾟ;)//
+ ִִ𓈒𓈒 I'm very shy! Σ(ﾟ口ﾟ;) New ppl/friends are very hard for me to approach. I do not approach strangers first, sorry </3 even crowning ppl is scary for me, and I RARELY do it.
 
  You can usually spot me in a cosplay pony. I rarely use anything else. Feel free to say hello if you recognize me !
 
- Please don't try to drag me into your drama, it happens more than you would think. 
+ Sign my atabook pretty please!! (≧ᗜ≦) i rarely get comments there </3
 
  Ａｂｏｕｔ ｍｅ ・・・・・ 
 
