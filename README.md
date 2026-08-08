@@ -10,6 +10,8 @@
   
   ◟ C+H friendly!! Don't be scared to interact with me ⚞^. .^⚟ I prefer talking in whispers, especially if you're trying to get my attention. 
 
+  If I don't reply to your whisper, I probably didn't see it and ended up disconnecting before I could reply. Sorry about that. Just put it in my ata
+
  ִִ𓈒𓈒 I'm very shy! Σ(ﾟ口ﾟ;) New ppl/friends are very hard for me to approach. I do not approach strangers first, sorry </3 even crowning ppl is scary for me, and I RARELY do it.
 
  You can usually spot me in a cosplay pony. I rarely use anything else. Feel free to say hello if you recognize me !
