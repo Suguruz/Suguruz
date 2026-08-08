@@ -16,7 +16,6 @@
 
  You can usually spot me in a cosplay pony. I rarely use anything else. Feel free to say hello if you recognize me !
 
- Sign my atabook pretty please!! (≧ᗜ≦) i rarely get comments there </3
 
  Ａｂｏｕｔ ｍｅ ・・・・・ 
 
