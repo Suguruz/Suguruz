@@ -36,7 +36,7 @@
   </details>
 </div>
 <p align="center"> 
-  few links for additional info <br>
+  view links for additional info <br>
 I hate readme this shit is too hard to use <br>
   ୧‿̩͙ ˖︵ ꕀ⠀ ♱⠀ ꕀ ︵˖ ‿̩͙୨
 <p align="center">
