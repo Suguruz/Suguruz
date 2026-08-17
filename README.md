@@ -3,7 +3,7 @@
 <img src="https://files.catbox.moe/x5q1vs.png" />
 ୧‿̩͙ ˖︵ ꕀ⠀ ♱⠀ ꕀ ︵˖ ‿̩͙୨
 <p align="center">
-  𐔌ྀི  ᯓ Moya ⑅ ͜͝ | ͜͝ | ͜͝𓈒 ׁ<br>
+  𐔌ྀི  ᯓ ᗰoya ⑅ ͜͝ | ͜͝ | ͜͝𓈒 ׁ<br>
   7teen ྀི𓐇˚ִִ𓈒  she ╱ her　◟ infj <br>
   C + H   friendly   ༘  pref whisper 2 int
 <p align="center"> 
@@ -18,7 +18,7 @@
 </div>
   <div align="center">
   <details>
-    <summary><b>Do not interact ᨳଓ</b></summary>
+    <summary><b>ᗪo not interact ᨳଓ</b></summary>
     <br>
     Basic DNI. <br>
     Proshippers/darkshipppers/profic, or are "neutral" on the topic. <br>
@@ -28,7 +28,7 @@
 </div>
   <div align="center">
   <details>
-    <summary><b>Before you interact ᨳଓ</b></summary>
+    <summary><b>ᗷefore you interact ᨳଓ</b></summary>
     <br>
     I make jokes like "kys/kms" or other stuff like that. <br>
     I'm shy (｡ᵕ ◞ _◟) I do not int w/ strangers first. <br>
