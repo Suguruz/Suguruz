@@ -22,7 +22,7 @@
     <br>
     Basic DNI. <br>
     Proshippers/darkshipppers/profic, or are "neutral" on the topic. <br>
-    Miura Ayme defenders.
+    Miura Ayme defenders. <br>
     Generative AI supporters <br>
     tcoaal fans<br>
     THIN ICE - ranfren, hh/hb, & dandy's world fans
