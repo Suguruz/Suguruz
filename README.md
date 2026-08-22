@@ -41,7 +41,7 @@
 </div>
 <p align="center"> 
   view links for additional info <br>
-I hate readme this shit is too hard to use <br>
+be my friend plsss <br>
   ୧‿̩͙ ˖︵ ꕀ⠀ ♱⠀ ꕀ ︵˖ ‿̩͙୨
 <p align="center">
 <img src="https://files.catbox.moe/git3u4.png" />
