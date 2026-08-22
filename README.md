@@ -39,6 +39,16 @@
     Sometimes I come across as uninterested, this is always unintentional.
   </details>
 </div>
+</div>
+  <div align="center">
+  <details>
+    <summary><b>ᑭony town info ᨳଓ</b></summary>
+    <br>
+    C+h always! you can always sit even when I'm w/ friends. <br>
+    I prefer whispers when having a conversation. Its always easier for me to see incase I'm afk. <br>
+    Please do not copy, colorpick, or screenshot my ponies.
+  </details>
+</div>
 <p align="center"> 
   view links for additional info <br>
 be my friend plsss <br>
