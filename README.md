@@ -6,7 +6,7 @@
   𐔌ྀི  ᯓ ᗰoya ⑅ ͜͝ | ͜͝ | ͜͝𓈒 ׁ<br>
   7teen ྀི𓐇˚ִִ𓈒  she ╱ her　◟ infj <br>
   C + H   friendly   ༘  pref whisper 2 int <br>
-  really selective Simeon yume
+  selective Simeon yume
 <p align="center"> 
   /ᐠ - ˕ -マ Ⳋ
   <div align="center">
