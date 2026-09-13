@@ -14,7 +14,8 @@
     <summary><b>Interests ᨳଓ</b></summary>
     <br>
     Obey Me!, Jujutsu Kaisen, Ensemble Stars, Madoka Magica,<br>
-    Link Click, Bungo Stray Dogs, Alice in Borderland, Pokemon, Yo-kai Watch, ++more
+    Link Click, Bungo Stray Dogs, Alice in Borderland, Pokemon, Yo-kai Watch, <br>
+    Fields of Mistria, Stardew Valley, Steven Universe, ++more <br>
   </details>
 </div>
   <div align="center">
