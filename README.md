@@ -36,7 +36,7 @@
     <summary><b>ᗷefore you interact ᨳଓ</b></summary>
     <br>
     I make jokes like "kys/kms" or other stuff like that. <br>
-    I'm shy (｡ᵕ ◞ _◟) I do not int w/ strangers first. <br>
+    I'm shy (｡ᵕ ◞ _◟) I do not interact with strangers first. <br>
     Sometimes I come across as uninterested, this is always unintentional.
   </details>
 </div>
