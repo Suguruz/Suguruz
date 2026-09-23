@@ -45,7 +45,7 @@
   <details>
     <summary><b>ᑭony town info ᨳଓ</b></summary>
     <br>
-    C+h always! you can always sit even when I'm w/ friends. <br>
+    C+h always! you can always sit even when I'm w/ friends. Even if its not in my name. <br>
     I prefer whispers when having a conversation. Its always easier for me to see incase I'm afk. <br>
     If I don't reply to a whisper, I'm sorry! I might have been afk and disconnected or had to go. <br>
     Please do not copy, colorpick, or screenshot my ponies.
