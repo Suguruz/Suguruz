@@ -1,6 +1,6 @@
 <p align="center">
-  
-<img src="https://files.catbox.moe/x5q1vs.png" />
+  <p align="center">
+<img img width="300" height="300" src="https://files.catbox.moe/t00qvt.png" /> <br>
 ୧‿̩͙ ˖︵ ꕀ⠀ ♱⠀ ꕀ ︵˖ ‿̩͙୨
 <p align="center">
   𐔌ྀི  ᯓ ᗰoya ⑅ ͜͝ | ͜͝ | ͜͝𓈒 ׁ<br>
@@ -11,49 +11,22 @@
   /ᐠ - ˕ -マ Ⳋ
   <div align="center">
   <details>
-    <summary><b>Interests ᨳଓ</b></summary>
+    <summary><b>Pony Town Info ᨳଓ</b></summary>
     <br>
-    Obey Me!, Jujutsu Kaisen, Ensemble Stars, Madoka Magica,<br>
-    Link Click, Bungo Stray Dogs, Alice in Borderland, Pokemon, Yo-kai Watch, <br>
-    Fields of Mistria, Stardew Valley, Steven Universe, ++more <br>
+    c+h friendly (˵◝ ⩊  ◜˵マ <br>
+    whisper me incase I don't see your message please! I am often offtab <br>
+    I do not interact with strangers first, sorry <br>
+    do not colorpick, screenshot, or copy my ponies. <br>
   </details>
 </div>
   <div align="center">
   <details>
-    <summary><b>ᗪo not interact ᨳଓ</b></summary>
+    <summary><b>DNI, BYI, Interests ᨳଓ</b></summary>
     <br>
-    Basic DNI. <br>
-    Proshippers/darkshipppers/profic, or are "neutral" on the topic. <br>
-    Miura Ayme defenders. <br>
-    Generative AI supporters <br>
-    tcoaal fans<br>
-    THIN ICE - ranfren, hh/hb, & dandy's world fans
+    https://rentry.co/arch-angelz
   </details>
 </div>
-</div>
-  <div align="center">
-  <details>
-    <summary><b>ᗷefore you interact ᨳଓ</b></summary>
-    <br>
-    I make jokes like "kys/kms" or other stuff like that. <br>
-    I'm shy (｡ᵕ ◞ _◟) I do not interact with strangers first. <br>
-    Sometimes I come across as uninterested, this is always unintentional.
-  </details>
-</div>
-</div>
-  <div align="center">
-  <details>
-    <summary><b>ᑭony town info ᨳଓ</b></summary>
-    <br>
-    C+h always! you can always sit even when I'm w/ friends. Even if its not in my name. <br>
-    I prefer whispers when having a conversation. Its always easier for me to see incase I'm afk. <br>
-    If I don't reply to a whisper, I'm sorry! I might have been afk and disconnected or had to go. <br>
-    Please do not copy, colorpick, or screenshot my ponies.
-  </details>
 </div>
 <p align="center"> 
-  view links for additional info <br>
-be my friend plsss <br>
   ୧‿̩͙ ˖︵ ꕀ⠀ ♱⠀ ꕀ ︵˖ ‿̩͙୨
 <p align="center">
-<img src="https://files.catbox.moe/git3u4.png" />
