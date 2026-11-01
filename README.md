@@ -4,7 +4,7 @@
 ୧‿̩͙ ˖︵ ꕀ⠀ ♱⠀ ꕀ ︵˖ ‿̩͙୨
 <p align="center">
   𐔌ྀི  ᯓ ᗰoya ⑅ ͜͝ | ͜͝ | ͜͝𓈒 ׁ<br>
-  7teen ྀི𓐇˚ִִ𓈒  she ╱ her　◟ infj <br>
+  7teen ྀི𓐇˚ִִ𓈒  she ╱ her　◟ infj　𓎟　nov29 <br>
   C + H   friendly   ༘  pref whisper 2 int <br>
   Simeon yume
 <p align="center"> 
