@@ -13,7 +13,7 @@
   <details>
     <summary><b>Pony Town Info ᨳଓ</b></summary>
     <br>
-    c+h friendly (˵◝ ⩊  ◜˵マ DO IT DO IT DO IT NOW <br>
+    c+h friendly (˵◝ ⩊  ◜˵マ do it or else. dont even bother asking <br>
     whisper me incase I don't see your message please! I am often offtab <br>
     I do not interact with strangers first, sorry <br>
     do not colorpick, screenshot, or copy my ponies. <br>
